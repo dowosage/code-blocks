@@ -1,2 +1,2 @@
 
-reduce, reuse, recycle
+Reduce, reuse, recycle.
